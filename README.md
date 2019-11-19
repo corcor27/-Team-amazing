@@ -1,1 +1,1 @@
-# -Team-amazing
+# Team-amazing
